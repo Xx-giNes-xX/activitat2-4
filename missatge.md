@@ -1,1 +1,3 @@
-Benvingut al nostre projecte! SED BIENVENIDOS!!!!!!!!!!!! SISISISI!
+Benvingut al nostre projecte!
+Es mentira no seas benvingut.
+SED BIENVENIDOS!!!!!!!!!!!! SISISISI!
