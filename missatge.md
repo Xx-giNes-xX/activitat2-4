@@ -1,1 +1,1 @@
-Benvingut al nostre projecte
+Benvingut al nostre projecte! Es mentira no seas benvingut.
